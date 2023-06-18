@@ -1,2 +1,4 @@
 # VMProtect-Cracked
-VMProtect.Pro.3.8.1.1695.x64 Nulled
+
+* Please Follow this repository to receiving vmpsoft application setup
+* for receiving setup keys check our telegram channel : https://t.me/Alephgsm
