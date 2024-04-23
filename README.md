@@ -1,5 +1,5 @@
 # VMProtect-Cracked
 
-* Please Follow this repository to receiving vmpsoft application setup
+* Follow (set star) this repository to receiving newer Crack of vmpsoft tools (pro, unlimited version)
 * download setup from releases
-* for receiving setup keys check our telegram channel : https://t.me/Alephgsm
+* for receiving setup keys check our telegram channel: https://t.me/DevirtualizeME
